@@ -1,4 +1,4 @@
-#  
+#  secret Scripts for kaizen is the best kaizen Script, featuring teleport and infinite resources. Safe and powerful for all your needs.
 
 
 
